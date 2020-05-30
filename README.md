@@ -1,0 +1,2 @@
+# for-KMK
+just diploma
